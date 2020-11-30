@@ -1,5 +1,4 @@
 # Jose Pablo Wenzel
-=======
 
 I'm Jose Pablo, a Chilean software craftsman. I'm driven by fun, yes you read that correctly, I enjoy working in fun enviroments and I'll do everything in my power to make others have a fun time working with me, I can be a little slow in showing this side of me, and that will come only with time and how open you are to me. I'm always worried that I'll offend you, so if I ever do, please accept my apologies. I'm good with change and new challenges, but my learning curve is particular and better explained with a doodle: 
 
